@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+# Do not, for one repulse, give up the purpose that you resolved to effect.
+　　 不要只因一次失败，就放弃你原来决心想要达到的目的。
+　　 －Willian Shakespeare（莎士比亚）
